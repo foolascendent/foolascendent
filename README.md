@@ -6,7 +6,7 @@ i looove my girlfriends, [juniper](https://github.com/heavensjester) & [dreamer]
 · · ─ ·✶· ─ · ·
 <details>
 <summary>about me ! >⩊< </summary>
-my name is sam, i use xe/them pronouns & i am 18 years old<br/> i am a polyamorous agender lesbian (do not flirt with me!!!)<br/>i am the #1 guest666 & noob fan and i'm Serious<br/> i have suspected autism, adhd, etc. etc.<br/> i am employed (i'm a ride operator at a theme park)!<br/> i'm currently majoring in graphic design to be a court room sketch artist!
+my name is sam, i use xe/them pronouns & i am 18 years old<br/> i am a polyamorous agender lesbian (do not flirt with me!!!)<br/>i am the #1 guest666 & noob fan and i'm Serious<br/> i have suspected autism, adhd, etc. etc.<br/> i'm an irl / fictkin whatever u call it. im not tell you who i am figure it out through my 7 riddles<br/> i am employed & i'm currently majoring in graphic design
 </details>
 
 <details>
