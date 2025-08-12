@@ -26,7 +26,7 @@ f̲o̲r̲s̲a̲k̲e̲n̲ / roblox in general, f̲i̲v̲e̲_n̲i̲g̲h̲t̲s̲_a�
 
 <details>
 <summary>friends ! >⩊< </summary>
-cc, foxii, zi, mimi, toonie, aubrey, sunny, danny, endi, mal, lucifer, choker, fervor, ennie camy, sam & webby!!
+cc, foxii, zi, mimi, toonie, aubrey, sunny, danny, stelle, endi, mal, lucifer, choker, fervor, ennie camy, sam, thad & webby!!
 </details>
   
 · · ─ ·✶· ─ · ·
