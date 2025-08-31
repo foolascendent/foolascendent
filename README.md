@@ -16,7 +16,7 @@ i make kys kms kts jokes & reclaim the f slur around those comfortable with it<b
 
 <details>
 <summary>dni ! ^. .^ </summary>
-basic dni criteria (which includes if you tolerate or support any of it)<br/> dreamteam schlatt punz wilbur minx fundy, blueycapsules, the coffin of andy and leyley, alfreds playhouse fans<br/> anyone who believes in or supports spawnism i dont fw that<br/> i freely block whoever makes me uncomfortable or people i just generally have bad feelings about<br/> gregory, cassie, mimic, tony, ellis, vanessa from fnaf haters and i am Veryyy serious
+basic dni criteria (which includes if you tolerate or support any of it)<br/> dreamteam schlatt punz wilbur minx fundy, blueycapsules, the coffin of andy and leyley, alfreds playhouse fans<br/> anyone who believes in or supports spawnism i dont fw that<br/> i freely block whoever makes me uncomfortable or people i just generally have bad feelings about<br/> gregory, cassie, mimic, tony, ellis, vanessa from fnaf haters and i am Veryyy serious<br/>bewildered i have to add this but if u make ur pony names sexual shit OR SAY SEXUAL SHIT in public on the pg server 
 </details>
 
 <details>
