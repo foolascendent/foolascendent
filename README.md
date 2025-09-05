@@ -1,5 +1,5 @@
 
-![ac](https://files.catbox.moe/rn1vna.webp)
+![ac](https://files.catbox.moe/w8wt5v.png)
 
 i looove my girlfriends, [juniper](https://github.com/heavensjester) & [dreamer](https://github.com/eternallimbo) ♡
 
