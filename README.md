@@ -6,7 +6,7 @@ i looove my girlfriends, [juniper](https://github.com/heavensjester) & [dreamer]
 · · ─ ·✶· ─ · ·
 <details>
 <summary>about me ! >⩊< </summary>
-my name is sam, i use xe/them pronouns & i am 18 years old<br/> i am a polyamorous agender lesbian (do not flirt with me!!!)<br/>i am the #1 guest666 & noob fan and i'm Serious<br/> i have suspected autism, adhd, etc. etc.<br/> i'm an irl / fictkin whatever u call it. im not telling you who i am figure it out through my 7 riddles<br/> i am employed & i'm currently majoring in graphic design
+my name is sam, i use xe/them pronouns & i am 18 years old<br/> i am a polyamorous agender lesbian (do not flirt with me!!!)<br/> i have suspected autism, adhd, etc. etc.<br/> i'm an irl / fictkin whatever u call it. im not telling you who i am figure it out through my 7 riddles<br/> i'm also unapologetically a nonsharing selfshipper unless we're friends<br/> i am employed & i'm currently majoring in graphic design
 </details>
 
 <details>
@@ -21,12 +21,15 @@ basic dni criteria (which includes if you tolerate or support any of it)<br/> dr
 
 <details>
 <summary>interests ! •⩊• </summary>
-f̲o̲r̲s̲a̲k̲e̲n̲ / roblox in general, f̲i̲v̲e̲_n̲i̲g̲h̲t̲s̲_a̲t̲_f̲r̲e̲d̲d̲y̲'̲s̲, how to train your dragon, ace attorney,<br/> toilet-bound hanako-kun, camp camp, sonic the hedgehog, bendy and the ink machine, soul eater<br/> murder drones, cookie run k/ob, playtime with percy, dawko, markiplier, tyler the creator, paramore, alex g
+r͟e͟g͟r͟e͟t͟e͟v͟a͟t͟o͟r͟, f̲o̲r̲s̲a̲k̲e̲n̲ / roblox in general, f̲i̲v̲e̲_n̲i̲g̲h̲t̲s̲_a̲t̲_f̲r̲e̲d̲d̲y̲'̲s̲, how to train your dragon, ace attorney,<br/> toilet-bound hanako-kun, camp camp, sonic the hedgehog, bendy and the ink machine, soul eater<br/> murder drones, cookie run k/ob, playtime with percy, dawko, markiplier, tyler the creator, paramore, alex g<br/>
+  <br/>
+my s͟p͟e͟c͟i͟f͟i͟c͟ character interests ship wise are S͟K͟A͟T͟E͟R͟L͟I͟G͟H͟T͟, g͟u͟e͟s͟t͟n͟o͟o͟b͟ (roblox, forsaken, any guestnoob. except for partybeetle #sorry)<br/>
+  poisonpizza, paycheck, stat x folly, protoscag. my actual character interests are kasper, infected & guest/g666. im significantly ill over them and</br/> consider myself to be their #1 fan mentally and in my own perfect world
+  <br/>
 </details>
-
 <details>
 <summary>friends ! >⩊< </summary>
-cc, foxii, zi, mimi, toonie, aubrey, sunny, danny, stelle, endi, mal, lucifer, choker, fervor, ennie camy, sam, thad & webby!!
+cc, evan, foxii, zi, mimi, toonie, aubrey, sunny, danny, stelle, endi, mal, lucifer, choker, fervor, ennie camy, sam, thad & webby!!
 </details>
   
 · · ─ ·✶· ─ · ·
