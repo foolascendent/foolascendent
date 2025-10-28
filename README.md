@@ -8,7 +8,7 @@ i looove my girlfriend, j͟u͟n͟i͟p͟e͟r ♡
 · · ─ ·✶· ─ · ·
 <details>
 <summary>abt me ! >⩊< </summary>
-my name is sam lampert or ellie, i use xe/them pronouns & i am 18 years old<br/> i am a polyamorous agender lesbian (do not flirt with me!!!)<br/> i have suspected autism, adhd, etc. etc.<br/> i'm an irl / fictkin whatever u call it. im not telling you who i am figure it out through my 7 riddles<br/> i'm also unapologetically a nonsharing selfshipper unless we're friends<br/> i am employed & i'm currently majoring in graphic design
+my name is sam or lampert, i use xe/them pronouns & i am 18 years old<br/> i am an agender lesbian (do not flirt with me!!!)<br/> i have suspected autism, adhd, etc. etc.<br/> i'm an irl / fictkin whatever u call it. im not telling you who i am figure it out through my 7 riddles<br/> i'm also unapologetically a nonsharing selfshipper unless we're friends<br/> i am employed & i'm currently majoring in graphic design
 </details>
 
   
