@@ -36,7 +36,7 @@ i consider myself lucifer, ozzie, kasper, infected & guest/g666's #1 fan <:)
 </details>
 <details>
 <summary>friends ! >⩊< </summary>
-endi, mal, foxii, zi, mimi, toonie, aubrey, sunny, danny, stelle, evan, luci, choker, fervor, ennie camy, sam, thad & webby!!
+endi, mal, foxii, zi, mimi, toonie, aubrey, sunny, danny, stelle, evan, luci, choker, fervor, ennie, camy, sam, thad & webby!!
 </details>
   
 · · ─ ·✶· ─ · ·
