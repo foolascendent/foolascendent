@@ -44,5 +44,5 @@ endi, mal, foxii, zi, mimi, toonie, aubrey, sunny, danny, stelle, evan, luci, ch
 thank you for reading! ^•-•^
 </div>
 <div align="center">
-<img src="https://64.media.tumblr.com/796b74b021aafaf17f557a2df2c909ec/672ac78762f484f1-43/s100x200/9f302b844f1bfe5bf47ca023be842aeccd0d492f.pnj"><img src="https://64.media.tumblr.com/0a78c04b1da85be360f763be7f6f005b/02cb9e31a028168d-48/s250x400/4b524bb19cce7d01611195928bd61460bfb48b45.gifv"><img src="https://64.media.tumblr.com/65a9a37d1aac27776d5fff45e0ffb752/d6031c36cdcafd14-ea/s100x200/2f89ec8b43d12cb8f95f6ad1fb31a08c6867ab93.pnj">
+<img src="https://64.media.tumblr.com/500ab9298265c379c7be993fbd92750e/580b310ce40b2c7a-e2/s100x200/04feba52dec68ea1744679a49ada68558faad0c8.gifv"> <img src="https://64.media.tumblr.com/ae14a2235bd9e33fa946d720e90f8b08/580b310ce40b2c7a-a3/s100x200/2607b8866d80f85783fb121822cccdba60d3126c.gifv"> <img src="https://64.media.tumblr.com/efdfa6101d48ef2167c2d14a9ce1ae87/580b310ce40b2c7a-fd/s100x200/af8c8b075ea98748b4e5f873e6dc45d2b47c7e97.gifv"> <img src="https://64.media.tumblr.com/88ee2cb8e8fc539dce514072687294ee/580b310ce40b2c7a-fa/s100x200/04ff0f17795b4601d5d51f821d86f1f209f69caa.gifv">
 </div>
