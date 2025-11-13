@@ -2,37 +2,41 @@
   <img src="https://64.media.tumblr.com/8e5c58c7ef16977b6439613573717c13/b2b2e140ec8eafd1-1c/s75x75_c1/0e0164091fa542984b8caa229d4901fa6a9cd90f.gifv"><img src="https://64.media.tumblr.com/6096ea3ab7ee587502d386ddddf29dc5/b2b2e140ec8eafd1-d8/s75x75_c1/3a402fe9cd533dbd382f45c7977f220ab98cba0e.gifv"><img src="https://64.media.tumblr.com/6a6a9d0637dd6a9088af6d9a5b81ee02/b2b2e140ec8eafd1-30/s75x75_c1/85a27dd31446e4fe466265bffb33db13c1c7c9b2.gifv">
 </div>
 <div align="center">
-i looove my girlfriend, j͟u͟n͟i͟p͟e͟r ♡
+i looove my girlfriend, p͟e͟r͟e͟g͟r͟i͟n͟e͟ ♡
 </div>
 <div align="center">
 · · ─ ·✶· ─ · ·
 <details>
 <summary>abt me ! >⩊< </summary>
-my name is sam or lampert, i use xe/them pronouns & i am 18 years old<br/> i am an agender lesbian (do not flirt with me!!!)<br/> i have suspected autism, adhd, etc. etc.<br/> i'm an irl / fictkin whatever u call it. im not telling you who i am figure it out through my 7 riddles<br/> i'm also unapologetically a nonsharing selfshipper unless we're friends<br/> i am employed & i'm currently majoring in graphic design
+sam ୨୧ xe/them ⋮ 18yo ♥ suspected autism & adhd <img src="https://64.media.tumblr.com/ad0985fc8ecfd1f29db8258cd72c1616/9605300ae0437751-97/s75x75_c1/9f791269aa5511aabd273fa49b232eee44e69874.pnj"><img <img src="https://64.media.tumblr.com/91f23955c40678c571fd48887bb21e16/9605300ae0437751-55/s75x75_c1/6c237be88efd213c26f03bf7951297532aa3eebc.pnj"><img <br/>
+                                                                                                                                                                                                                                                                                                                                                                                              
+selective sharing lucifer selfshipper 𖹭𖹭 i am employed & in college<br/>
+fizzarolli fictkin. "doubles" okay to int :) lets be the fizzlings
 </details>
 
   
 <details>
 <summary>byi ! - ‸ - </summary>
-i make kys kms kts jokes & reclaim the f slur around those comfortable with it<br/> i am very critical of my interests!<br/> i block every single codegold (j x n) shipper that i ever come across<br/> im a steel wool glazer i looove steel wool and modern fnaf<br/> i do not like scott cawthon or matpat! i also ship fnaf characters<br/> anything negative sent to my strawpage will not give you a reaction because i do not care<br/> i am very open minded to ships & i love rarepairs yumm
+i make kys kms kts jokes & reclaim the f slur around those comfortable with it<br/> i am very critical of my interests! anything negative sent to my strawpage is ignored because i do not care<br/> i am usually very open minded to ships & i love rarepairs!!, 🚨I̼ ̼D̼O̼ ̼N̼O̼T̼ ̼S̼U̼P̼P̼O̼R̼T̼ ̼V̼I̼V̼Z̼I̼E̼P̼O̼P̼!!!!!!!!🚨 <br/>
+i do not like the vees at all. let the world know that i hate the vees.
 </details>
 
 <details>
 <summary>dni ! ^. .^ </summary>
-basic dni criteria (which includes if you tolerate or support any of it)<br/> dreamteam schlatt punz wilbur minx fundy, blueycapsules, the coffin of andy and leyley, alfreds playhouse fans<br/> anyone who believes in or supports spawnism i dont fw that<br/> i freely block whoever makes me uncomfortable or people i just generally have bad feelings about<br/> gregory, cassie, mimic, tony, ellis, vanessa from fnaf haters and i am Veryyy serious<br/>bewildered i have to add this but if u make ur pony names sexual shit (which includes saying it) in public on the pg server 
+basic dni criteria [racism transphobe homophobe zionists proship etc]<br/> dreamteam,wilbur soot, blueycapsules, the coffin of andy and leyley, alfreds playhouse fans<br/> i freely block whoever makes me uncomfortable or people i just generally have bad feelings about
 </details>
 
 <details>
 <summary>interests ! •⩊• </summary>
-r͟e͟g͟r͟e͟t͟e͟v͟a͟t͟o͟r͟, f̲o̲r̲s̲a̲k̲e̲n̲ / roblox in general, f̲i̲v̲e̲_n̲i̲g̲h̲t̲s̲_a̲t̲_f̲r̲e̲d̲d̲y̲'̲s̲, how to train your dragon, ace attorney,<br/> toilet-bound hanako-kun, camp camp, sonic the hedgehog, bendy and the ink machine, soul eater<br/> murder drones, cookie run k/ob, playtime with percy, dawko, markiplier, tyler the creator, paramore, alex g<br/>
+h͟a͟z͟b͟i͟n͟ h͟o͟t͟e͟l͟, h͟e͟l͟l͟u͟v͟a͟ b͟o͟s͟s͟, haunted hotel, regretevator, forsaken, bad things, fnaf <br/>
   <br/>
-my s͟p͟e͟c͟i͟f͟i͟c͟ character interests ship wise are S͟K͟A͟T͟E͟R͟L͟I͟G͟H͟T͟, P͟A͟Y͟C͟H͟E͟C͟K͟, g͟u͟e͟s͟t͟n͟o͟o͟b͟ <br/>
-stat x folly, protoscag. i consider myself kasper, infected & guest/g666's #1 fan
+my s͟p͟e͟c͟i͟f͟i͟c͟ ship interests are f͟i͟z͟z͟m͟o͟d͟e͟u͟s, q͟p͟r͟ r͟a͟d͟i͟o͟a͟p͟p͟l͟e, h͟u͟s͟k͟e͟r͟d͟u͟s͟t, c͟h͟a͟g͟g͟i͟e, s͟k͟a͟t͟e͟r͟l͟i͟g͟h͟t͟ <br/>
+i consider myself lucifer, ozzie, kasper, infected & guest/g666's #1 fan <:)
   <br/>
 </details>
 <details>
 <summary>friends ! >⩊< </summary>
-cc, evan, foxii, zi, mimi, toonie, aubrey, sunny, danny, stelle, endi, mal, lucifer, choker, fervor, ennie camy, sam, thad & webby!!
+endi, mal, foxii, zi, mimi, toonie, aubrey, sunny, danny, stelle, evan, luci, choker, fervor, ennie camy, sam, thad & webby!!
 </details>
   
 · · ─ ·✶· ─ · ·
