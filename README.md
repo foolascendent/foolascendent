@@ -2,7 +2,7 @@
   <img src="https://64.media.tumblr.com/ea891d209fa7cbb69cc554ecdf7fd86e/f855951b4d6235fb-2e/s250x400/b0ec4031804a55898378e7704d721abfa631cfd7.gifv">
 </div>
 <div align="center">
-i looove my girlfriend, p͟e͟r͟e͟g͟r͟i͟n͟e͟ ♡
+
 </div>
 <div align="center">
 · · ─ ·✶· ─ · ·
